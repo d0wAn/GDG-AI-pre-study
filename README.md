@@ -1,1 +1,0 @@
-# GDG-AI-pre-study
